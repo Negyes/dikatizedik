@@ -1,0 +1,2 @@
+# dikatizedik
+faszkivanmahogyennyitrepokellxd
